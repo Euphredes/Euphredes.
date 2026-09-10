@@ -30,7 +30,7 @@ Movie
 
            Approach 
 
-           Execution 
+           Responsibilities 
 
            Movie 
            ----- 
