@@ -26,6 +26,14 @@ Movie
            Introduction 
            ------------ 
 
+           Review 
+
+What is it? 
+Who is it for? 
+Where has it been? 
+Where is it going? 
+How is it done in two parts? 
+
            Storyline 
 
 Opponent 
@@ -60,6 +68,8 @@ Physically
 Spiritually 
  Focus 
 
+           * * * 
+
            Movie 
            ----- 
 
@@ -77,6 +87,14 @@ Inward
  Obstacle Course 
 
            Song 
+
+Poem 
+        Song         Ballad 
+            Sixteen        A 
+            Sixteen        B 
+            Sixteen        C 
+                           B 
+Pattern:    Endrhymes      Endrhyme 
 
            Storyline 
 
