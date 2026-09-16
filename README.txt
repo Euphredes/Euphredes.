@@ -98,57 +98,33 @@ Poem
                            B 
 Pattern:    Endrhymes      Endrhyme 
 
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
+        Spanish 
+               Noun 
+               Adjective 
+               Verb 
+               Adverb 
+Pattern:       Speech 
 
            Storyline 
+           --------- 
 
            Song 
+           ---- 
 
            Storyline 
+           --------- 
 
            Song 
+           ---- 
 
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
-
-           Storyline 
-
-           Song 
-
-           Fin 
+           . 
+           . 
+           . 
 
            Cole 
+           ---- 
+ 
+           Toomuch 
 
 (I said some.) 
 My bad. 
