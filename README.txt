@@ -4,6 +4,9 @@
            A MOVIE 
 
 
+           ALEXANDRIAN SERVANT 
+
+
            Publishing 
 
 Licensing: Content in this text file 
@@ -23,7 +26,6 @@ Location: Cherry Hill, NJ.
 
 Introduction 
 Movie 
-Cole 
 
            Introduction 
            ------------ 
@@ -120,17 +122,6 @@ Pattern:       Speech
            . 
            . 
            . 
-
-           Cole 
-           ---- 
- 
-           Toomuch 
-
-(I said some.) 
-My bad. 
-
-I need a Ship. 
-(get the Ship.) 
 
            ***** 
             *** 
