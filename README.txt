@@ -4,7 +4,11 @@
            A MOVIE 
 
 
-           ALEXANDRIAN SERVANT 
+           EUPHREDES 
+           AN ALEXANDRIAN SERVANT 
+
+
+           A BOOK FOR FILMMAKERS 
 
 
            Publishing 
