@@ -11,40 +11,19 @@ Licensing: Content in this text file
            Commons Attribution 4.0 
            International license. 
 Author: Nick Morris. 
-Release: Saturday, September 12th 2026. 
-Location: Philadelphia, PA. 
+Age: 33 Years Old. 
+Release: Wednesday, September 16th 2026. 
+Location: Cherry Hill, NJ. 
 
            --------- 
            Euphredes 
            --------- 
 
-           Claimer 
-
-A thought happens when .it. wants to, 
-not when I want it. The closest 
-experience I'm abused by daily, 
-thoughts, are a stranger. I do not 
-know the who of my thinking. This 
-strikes fear into my authenticity. 
-I'll use silence, chanting, or humming 
-to cope: to overload my mind until some 
-reaction within me, that is strong 
-enough, breaks thorugh my self-imposed 
-monotony. That reaction is a choice 
-for me to make or not. I feel like a 
-gambler with a stranger, who I've 
-been closest to, gambling over my 
-life and death. This monster is the 
-famous, owld .it. 
-
-When a person dies, all that one goes 
-to the grave with is just one's own 
-stories: that is the person's bounty. 
-
            Contents 
 
 Introduction 
 Movie 
+Cole 
 
            Introduction 
            ------------ 
@@ -167,7 +146,15 @@ Pattern:    Endrhymes      Endrhyme
 
            Song 
 
-           Fin
+           Fin 
+
+           Cole 
+
+(I said some.) 
+My bad. 
+
+I need a Ship. 
+(get the Ship.) 
 
            ***** 
             *** 
