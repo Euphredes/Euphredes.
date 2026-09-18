@@ -146,7 +146,7 @@ raising my longboard to hover.
 hard left off Lock Street, 
 bomb down the hill without a clover. 
 a loft is roomed under the river's bridge, 
-vacant for a smoke break with a buddy. 
+vacant for a smoke break with my buddy. 
 rockclimb without spilling in the water, 
 earth, fire, water, outside: money. 
 
