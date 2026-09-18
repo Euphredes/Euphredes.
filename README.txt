@@ -238,8 +238,25 @@ Things never did me well. Places. Go!
 
            Song 
 
+bradford sees me with furniture for charity, 
+woods and roads I know better than others. 
+rainfall hurries me to my site raided, 
+as I move to the church I walked dirt under. 
 
+a white van pulls up at dawn, 
+as I walkaway without any eye contact. 
+nightfall courted me to the gardener's hut, 
+the proper place for me to relax. 
 
+I march north for Hampton Beach, 
+last time I collapsed in my car. 
+last time was the day before Bridgewater, 
+this time: Take America Back canvas: a scar. 
+
+policeman laughs at my odd mix pocketed, 
+before swaddling me into a holding cell. 
+I convince him of a detox holding, 
+where I still walk well. 
 
            Act 
 
