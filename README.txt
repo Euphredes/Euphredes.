@@ -163,7 +163,7 @@ in the pavilion with green free spirits,
 freestyling halfsentences in last place. 
 the mind races exceptionally, 
 the lips can't catch up for a facetoface. 
-my buddy darts away before the code black, 
+my cellie darts away before the code black, 
 I'm waiting at the gates to catch up. 
 Phaedrah slides pretty but not my care, 
 haikus are the pop quiz: little cups. 
