@@ -211,6 +211,19 @@ adj_14_B.
 verb_15_C, 
 adv_16_B. 
 
+           Act 
+
+I board the train in Lowell, to Boston. 
+I tell the moving train's conductor: 
+I'm an alcoholic, I'm homeless, I need 
+a detox in Boston. I walk into North 
+Station, shadowing a tricketwalker 
+through the gates. I make it to a 
+blackwoman's garden. She also slides 
+pretty. 
+
+           * * *  
+
            ***** 
             *** 
              * 
