@@ -238,7 +238,7 @@ Things never did me well. Places. Go!
 
            Song 
 
-bradford sees me with furniture for charity, 
+Bradford sees me with furniture for charity, 
 woods and roads I know better than others. 
 rainfall hurries me to my site raided, 
 as I move to the church I walked dirt under. 
