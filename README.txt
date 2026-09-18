@@ -182,6 +182,13 @@ Worchester Recovery Center sends my New
 Hampshire residency to Hope House, Mass 
 and Cass, Boston. 
 
+I get four-thousand dollars. The last of 
+the World War II family trust fund that 
+covered too much of my schooling. 
+
+           Song 
+
+
 
 
 
