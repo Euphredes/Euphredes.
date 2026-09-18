@@ -146,7 +146,7 @@ raising my longboard to hover.
 hard left off Lock Street, 
 bomb down the hill without a clover. 
 a loft is roomed under the river's bridge, 
-vacant for a smoke break with my buddy. 
+vacant to smoke break with my main buddy. 
 rockclimb without spilling in the water, 
 earth, fire, water, outside: money. 
 
@@ -188,28 +188,58 @@ covered too much of my schooling.
 
            Song 
 
+by the Waste Management Facility, 
+between Hope House and Mass and Cass. 
+there is a inward corner I'm standing, 
+a six pack of beer and two prerolls last. 
+it's been over six months for my baseline, 
+to breeze by the frontdesk before nine. 
+upstairs in a twoman: my last coffin coos, 
+where my wishes on loons over time combine. 
+Phaedrah is a word, not a name, my incantation, 
+trying to catch the count I have in Bridgewater. 
+purchasing books that can never catch Lock Street, 
+my body is the last thing I have to offer. 
+the secondfloor library has a random sample, 
+I'm rehearsing the lectures to get promoted. 
+Southie has me selling the internet for free, 
+coworkers don't know about Hope House: hoping. 
 
+           Act 
 
-
+In Gavin, hallways become gyms. In Pine 
+Street Inn, hallways become lovenotes. In 
+John Flowers, rooms become witchbound. 
 
            Song 
 
-noun_1_A, 
-adj_2_B. 
-verb_3_C, 
-adv_4_B. 
-noun_5_A, 
-adj_6_B. 
-verb_7_C, 
-adv_8_B. 
-noun_9_A, 
-adj_10_B. 
-verb_11_C, 
-adv_12_B. 
-noun_13_A, 
-adj_14_B. 
-verb_15_C, 
-adv_16_B. 
+danvers has me smoking cigarettes, first time, 
+my handholder shows how to nail a flick of ash off. 
+thirteen stepping is forbidden, 
+especially with a woman recovering other knots. 
+Bridgewater art has all addicts convinced, 
+crazy is not trying to confuse it. 
+envy wants me dead, but Ruben taught me better, 
+careless caregiving switches to bitch quick. 
+when I can't get my female onetoone, 
+I relieve my interest and destroy a virtue. 
+unexpected peers learn the silence I wanted, 
+I give her stepping stones and leave her too. 
+she dresses sexy and others get buddybuddy, 
+as I outwork detention and distribute freely. 
+shorter than short called me moody walker, 
+he left pals because motions he'll study. 
+
+           Act 
+
+In Tewksbury State Hospital, grounds greet 
+my witchery. Enough! People can go to hell. 
+Things never did me well. Places. Go! 
+
+           Song 
+
+
+
 
            Act 
 
